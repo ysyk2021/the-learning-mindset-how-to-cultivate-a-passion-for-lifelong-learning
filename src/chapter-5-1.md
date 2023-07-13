@@ -1,4 +1,4 @@
-Chapter 5: Building Strong Habits: The Impact of Habits on Lifelong Learning
+The Impact of Habits on Lifelong Learning
 ============================================================================
 
 Habits play a critical role in cultivating a learning mindset and achieving lifelong learning. Strong habits enable individuals to establish a routine of continuous learning and make consistent progress towards their goals. This chapter will explore the impact of habits on lifelong learning.

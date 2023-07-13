@@ -1,4 +1,4 @@
-Chapter 11: Nurturing a Passion for Lifelong Learning: The Importance of Passion in Lifelong Learning
+The Importance of Passion in Lifelong Learning
 =====================================================================================================
 
 Passion is a crucial component of lifelong learning. When individuals are passionate about what they are learning, they are more motivated, engaged, and committed to ongoing growth and development. In this chapter, we will explore the importance of passion in lifelong learning and offer tips for nurturing a passion for learning.

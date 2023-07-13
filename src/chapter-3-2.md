@@ -1,4 +1,4 @@
-Chapter 3: Identifying Your Learning Style: Techniques for Identifying Your Primary Learning Style
+Techniques for Identifying Your Primary Learning Style
 ==================================================================================================
 
 Identifying your learning style is essential for effective learning and maximizing your potential. Everyone has a unique way of processing information, and understanding your primary learning style can help you tailor your approach to learning and achieve greater success. This chapter will explore techniques for identifying your primary learning style.

@@ -1,4 +1,4 @@
-Chapter 6: Practicing Effective Study Techniques: Techniques for Studying Effectively and Efficiently
+Techniques for Studying Effectively and Efficiently
 =====================================================================================================
 
 Practicing effective study techniques is crucial for maximizing learning outcomes. It requires discipline, focus, and a willingness to try new approaches. In this chapter, we will explore techniques for studying effectively and efficiently.

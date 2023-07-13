@@ -1,4 +1,4 @@
-Chapter 5: Building Strong Habits: Strategies for Building and Maintaining Strong Habits
+Strategies for Building and Maintaining Strong Habits
 ========================================================================================
 
 Developing a learning mindset requires more than just a willingness to learn. It also requires building strong habits that support your growth and development. In this chapter, we will explore strategies for building and maintaining strong habits that will help you cultivate a passion for lifelong learning.

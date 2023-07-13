@@ -1,4 +1,4 @@
-Chapter 8: Collaborating with Others: The Benefits of Collaboration in Learning
+The Benefits of Collaboration in Learning
 ===============================================================================
 
 Collaboration is an essential aspect of the learning process. Working with others can enhance learning outcomes, deepen understanding, and provide opportunities for growth and development. In this chapter, we will explore the benefits of collaboration in learning.

@@ -1,4 +1,4 @@
-Chapter 8: Collaborating with Others: Tips for Building and Maintaining Strong Collaborative Relationships
+Tips for Building and Maintaining Strong Collaborative Relationships
 ==========================================================================================================
 
 Collaborating with others is an essential aspect of the learning process. It requires communication, empathy, and a willingness to work together towards a shared goal. In this chapter, we will explore tips for building and maintaining strong collaborative relationships.

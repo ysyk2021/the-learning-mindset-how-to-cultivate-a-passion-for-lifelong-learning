@@ -1,4 +1,4 @@
-Chapter 2: Embracing a Growth Mindset: Techniques for Cultivating a Growth Mindset
+Techniques for Cultivating a Growth Mindset
 ==================================================================================
 
 Embracing a growth mindset is essential for cultivating a passion for lifelong learning. A growth mindset is the belief that intelligence and abilities can be developed through dedication, effort, and hard work. This chapter will explore techniques for cultivating a growth mindset.
