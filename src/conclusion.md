@@ -1,8 +1,5 @@
 # Conclusion
 
-Chapter 12: Conclusion
-======================
-
 Congratulations on completing "The Learning Mindset: How to Cultivate a Passion for Lifelong Learning". This guide has provided you with the tools and techniques you need to become a more effective learner and cultivate a passion for lifelong learning.
 
 Final Thoughts on The Learning Mindset and Cultivating a Passion for Lifelong Learning

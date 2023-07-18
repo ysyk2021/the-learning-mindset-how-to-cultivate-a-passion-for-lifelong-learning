@@ -8,5 +8,3 @@
 8. Learning is not just for students. "The Learning Mindset" teaches you how to embrace lifelong learning and enjoy the benefits of continuous personal and professional growth. #LifelongLearningBenefits #PersonalGrowth
 9. The benefits of a learning mindset go beyond just improving your knowledge and skills. It can also boost your confidence, creativity, and overall wellbeing. "The Learning Mindset" shows you how. #ConfidenceBoost #Creativity
 10. Ready to transform your life through learning? "The Learning Mindset" is the ultimate guide to help you cultivate a passion for lifelong learning and achieve success on your own terms. #SuccessOnYourTerms #LearningMindset
-
-
