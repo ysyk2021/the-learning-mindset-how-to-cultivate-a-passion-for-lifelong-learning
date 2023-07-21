@@ -33,7 +33,5 @@
 - [Chapter 11: Nurturing a Passion for Lifelong Learning](chapter-11.md)
   - [The Importance of Passion in Lifelong Learning](chapter-11-1.md)
   - [Techniques for Cultivating and Sustaining a Passion for Learning](chapter-11-2.md)
-- [Chapter 12: Conclusion](chapter-12.md)
-  - [Final Thoughts on The Learning Mindset and Cultivating a Passion for Lifelong Learning](chapter-12-1.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
