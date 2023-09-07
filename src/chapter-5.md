@@ -1,5 +1,3 @@
-Chapter 5: Building Strong Habits
-=================================
 
 Building strong habits is essential for cultivating a learning mindset and achieving lifelong learning. Habits enable individuals to make consistent progress towards their goals and develop a routine of continuous learning. This chapter will explore the impact of habits on lifelong learning and strategies for building and maintaining strong habits.
 

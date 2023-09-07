@@ -35,3 +35,4 @@
   - [Techniques for Cultivating and Sustaining a Passion for Learning](chapter-11-2.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)

@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Welcome to "The Learning Mindset: How to Cultivate a Passion for Lifelong Learning". This guide is designed to help individuals develop a mindset and habits that support lifelong learning. In this chapter, we will discuss the importance of lifelong learning and how to use this guide.
 

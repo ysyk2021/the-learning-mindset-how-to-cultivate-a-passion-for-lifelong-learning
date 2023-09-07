@@ -1,5 +1,3 @@
-Chapter 8: Collaborating with Others
-====================================
 
 Collaboration is an essential aspect of the learning process. Working with others can enhance learning outcomes, deepen understanding, and provide opportunities for growth and development. In this chapter, we will explore the benefits of collaboration in learning and offer tips for building and maintaining strong collaborative relationships.
 

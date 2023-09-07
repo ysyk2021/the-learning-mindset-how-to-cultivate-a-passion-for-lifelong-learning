@@ -1,5 +1,3 @@
-How to Use This Guide
-==============================================
 
 Welcome to "The Learning Mindset: How to Cultivate a Passion for Lifelong Learning". This guide is designed to help individuals develop a mindset and habits that support lifelong learning. Whether you are a student, professional, or simply someone who wants to continue growing and developing, this guide will provide you with the tools and techniques you need to become a more effective learner.
 
